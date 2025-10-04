@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning cse
 - 💞️ I’m looking to collaborate on github
-- 📫 How to reach me dm insta
+- 📫 How to reach me dm insta - @qtpys
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
